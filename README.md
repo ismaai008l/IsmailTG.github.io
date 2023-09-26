@@ -1,1 +1,0 @@
-# IsmailTG.github.io
